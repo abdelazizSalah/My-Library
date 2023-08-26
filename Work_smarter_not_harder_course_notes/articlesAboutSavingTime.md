@@ -1,0 +1,3 @@
+* [You don’t build the life you want by saving time. You build the life you want, and then time saves itself.](https://www.fastcompany.com/3037021/why-you-should-ignore-some-time-saving-tips)
+* [a performance tracking and task planning software](https://www.lifehack.org/801703/productivity-tracker)
+* [How Can A Productivity App Help You Be Organized?](https://www.entrepreneur.com/en-in/lifestyle/how-can-a-productivity-app-help-you-be-organized/341857)
