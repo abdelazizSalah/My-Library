@@ -1,0 +1,4 @@
+* Have you ever had a day when you were absolutely busy, busy, busy from the minute you woke up until the minute you dropped into bed and fell asleep? At the end of this super busy day, do you remember what you did? Or was it one of those days where you know you worked hard all day, you know you're tired, but you're not exactly sure where the time went? Well, if you worked all day long, and you're not 100% certain where your time went, you might have been engaged in unproductive work.
+* Is there something called **unproductive work?**, isn't all work good? 
+* The answer is no, because you may be spending alot of effort but in the wrong direction, and these things you are doing are not really good for anybody. 
+* and the time you have spent, could be used better in achieving the main goals. 
