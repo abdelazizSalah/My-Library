@@ -1,0 +1,3 @@
+# Find a System that Works for You
+
+* There are all kinds of time management systems, but the purpose of this course is not to sell you a particular time management system. Sometimes your employer will provide a time management system or send you to time management training. If they do, go, pay attention, and consider what is presented to you. It's possible that your employer has a preference for a specific system, and when this is true, it's really in your best interest to try to learn their system of choice. Otherwise, don't feel compelled to use a system just because everyone says it's the best system. The best system is the one that helps you to be productive and effective. That's really the bottom line.
